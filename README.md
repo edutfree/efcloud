@@ -1,6 +1,6 @@
 # EFCloud机场官网地址最新入口 + 优惠券
 
-最新地址：[efcloud.bio](https://inv.easyfastcloud.com/#/register?code=WF4l8A7k)
+最新地址：[efcloud3.cc](https://inv.easyfastcloud.com/#/register?code=WF4l8A7k)
 
 ## EFCloud介绍
 
